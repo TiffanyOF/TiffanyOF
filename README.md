@@ -2,20 +2,20 @@
 
 Meu nome é **Tiffany de Oliveira Ferreira**
 
-_- Estou estudando no [Alura](https://www.alura.com.br)_
+_-📔 Estou estudando no [Alura](https://www.alura.com.br)_
 
-_- Estou me desenvolvendo na linguagem de programação_
+_-💻 Estou me desenvolvendo na linguagem de programação_
 
-_- Utilizo este espaço para a minha organização e compartilhamento de meus projetos desenvolvidos_
+_-📩 Utilizo este espaço para a minha organização e compartilhamento de meus projetos desenvolvidos_
 
-_- Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
+_-🏫 Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
   
-### Para entrar em contado comigo 📧
+### Para entrar em contado comigo 💌
 
 tiffany3005of@gmail.com
-
-![](https://logodix.com/logo/1049890.png) [@tiffany__900](https://www.instagram.com/tiffany__900/)
+ 
+[@tiffany__900](https://www.instagram.com/tiffany__900/)
 
 
 
