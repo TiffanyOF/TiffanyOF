@@ -15,7 +15,7 @@ _-🏫 Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
 tiffany3005of@gmail.com
  
-[@tiffany__900](https://www.instagram.com/tiffany__900/)
+![](blob:https://web.whatsapp.com/15673ea1-77ea-4aac-a092-8c72aab6532d) [@tiffany__900](https://www.instagram.com/tiffany__900/)
 
 
 
