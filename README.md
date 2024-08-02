@@ -6,7 +6,7 @@ _- Estou estudando no [Alura](https://www.alura.com.br)_
 
 _- Estou me desenvolvendo na linguagem de programação_
 
-_- Utilizo este espaço para a minha organização e compartilhamento de meus projetos_
+_- Utilizo este espaço para a minha organização e compartilhamento de meus projetos desenvolvidos_
 
 _- Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
