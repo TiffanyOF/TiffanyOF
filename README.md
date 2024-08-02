@@ -8,7 +8,7 @@ _Meu nome é Tiffany Ferreira_
 
 - Utilizo este espaço para a minha organização e compartilhamento de meus projetos
 
-### Para entar em contado comigo 📧
+### Para entrar em contado comigo 📧
 
 tiffany3005of@gmail.com
 
