@@ -14,8 +14,7 @@ _-🏫 Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 ### Para entrar em contado comigo 💌
 
 tiffany3005of@gmail.com
- 
-![](https://github.com/user-attachments/assets/0c3d2d88-74b5-45aa-9d3b-7b9f6a5344e0)
+
  [@tiffany__900](https://www.instagram.com/tiffany__900/)
 
 
