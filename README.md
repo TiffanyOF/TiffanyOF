@@ -15,4 +15,4 @@ tiffany3005of@gmail.com
 @tiffany__900
 
 
-![](https://tenor.com/pt-BR/view/sanrio-sanrio-gothic-sanrio-gothic-banner-gothic-banner-pink-and-black-banner-gif-25833073)
+![](https://tenor.com/pt-BR/view/kuromi-gif-23740129) 
