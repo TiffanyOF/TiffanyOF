@@ -1,6 +1,6 @@
 ## Bem-Vindos ao meu perfil 💜🌙
 
-Meu nome é **Tiffany Ferreira**
+Meu nome é **Tiffany de Oliveira Ferreira**
 
 _- Estou estudando no [Alura](https://www.alura.com.br)_
 
