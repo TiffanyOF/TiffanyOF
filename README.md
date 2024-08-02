@@ -17,5 +17,4 @@ tiffany3005of@gmail.com
 
 @tiffany__900
 
-
-![](https://tenor.com/pt-BR/view/kuromi-gif-23740129) 
+![](https://tenor.com/pt-BR/view/kuromi-gif-23740129)
