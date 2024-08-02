@@ -15,7 +15,7 @@ _- Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
 tiffany3005of@gmail.com
 
-1[](https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg) [@tiffany__900](https://www.instagram.com/tiffany__900/)
+![](https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg) [@tiffany__900](https://www.instagram.com/tiffany__900/)
 
 
 
