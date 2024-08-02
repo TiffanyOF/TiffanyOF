@@ -2,11 +2,11 @@
 
 _Meu nome é Tiffany Ferreira_
 
-✴Estou estudando no Alura
+- Estou estudando no Alura
 
-✴Estou me desenvolvendo na lnguagem de programação
+- Estou me desenvolvendo na lnguagem de programação
 
-✴Utilizo este espaço para a minha organização e compartilhamento de meus projetos
+- Utilizo este espaço para a minha organização e compartilhamento de meus projetos
 
 ### Para entar em contado comigo 📧
 
