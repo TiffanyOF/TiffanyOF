@@ -1,14 +1,14 @@
 ## Bem-Vindos ao meu perfil 💜🌙
 
-_Meu nome é Tiffany Ferreira_
+Meu nome é **Tiffany Ferreira**
 
-- Estou estudando no [Alura](https://www.alura.com.br)
+_- Estou estudando no [Alura](https://www.alura.com.br)_
 
-- Estou me desenvolvendo na linguagem de programação
+_- Estou me desenvolvendo na linguagem de programação_
 
-- Utilizo este espaço para a minha organização e compartilhamento de meus projetos
+_- Utilizo este espaço para a minha organização e compartilhamento de meus projetos_
 
-- Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)
+_- Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
   
 ### Para entrar em contado comigo 📧
