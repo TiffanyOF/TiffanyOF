@@ -8,7 +8,7 @@ _Meu nome é Tiffany Ferreira_
 
 - Utilizo este espaço para a minha organização e compartilhamento de meus projetos
 
--Estudo no Ibrahim Nobre
+-Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)
 
   
 ### Para entrar em contado comigo 📧
