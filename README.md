@@ -10,11 +10,11 @@ _-📋 Utilizo este espaço para minha organização e compartilhamento de meus 
 
 _-🏫 Estudo no [Ibrahim Nobre](https://www.instagram.com/ibrahimnobre/)_
 
-<div>
+</div>
 
-### Para entrar em contato comigo 💌
+## Para entrar em contato comigo 💌
 
-<div>
+</div>
 
  <a href = "mailto:tiffany3005of@gmail.com"><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
 
